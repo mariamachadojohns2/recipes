@@ -2,6 +2,7 @@
 
 ## Ingredients
 * Chickpeas
+* Sesame seeds
 * Lemon
 * Garlic
 
